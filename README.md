@@ -4,4 +4,4 @@ you can use original acetate and upper membrane to make contact for the keys, si
 are working. Or you can coat that points with some conduct ink or even stick some conduct material in that.
 
 
-Especial thanks to Alexandre Simonka who has sponsered this project. Many thanks my friend.
+Special thanks to Alexandre Simonka who has sponsered this project. Many thanks my friend.
